@@ -1,4 +1,4 @@
-
+adopt me exclusive Scripts is the best adopt me Script, featuring custom skins and auto-sell. Safe and powerful for all your needs.
 
 
 
